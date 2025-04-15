@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Redlap0
-- 👀 I’m interested in maths
+- 👀 I’m interested in maths, anime, manga and boxing
 - 🌱 I’m currently learning python
  
  
